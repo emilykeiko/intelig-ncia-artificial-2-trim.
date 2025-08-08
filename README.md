@@ -1,1 +1,1 @@
-# intelig-ncia-artificial-2-trim.
+# 3f-2tri-2025
